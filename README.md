@@ -1,6 +1,11 @@
 - 👋 Hi, I’m @GrierMarkov
 - 👀 I’m interested in WLW fanfiction from scifi and fantasy fandoms
-- 🌱 I’m currently writing OUAT, 
+- 🌱 I’m currently writing within the following fandoms
+  - OUAT
+  - Harry Potterverse
+  - Star Trek complete franchise
+  - The Magicians
+  - Expanded crossovers of an amalgam of different tv shows, books, and films
 - 💞️ I’m looking to collaborate on writing fanfic from any of these fandoms
 - 📫 How to reach me 
   - [tumblr](https://www.tumblr.com/blog/anathemadevised)
