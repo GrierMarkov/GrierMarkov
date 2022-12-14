@@ -6,7 +6,7 @@
   - Star Trek complete franchise
   - The Magicians
   - Expanded crossovers of an amalgam of different tv shows, books, and films
-- 💞️ I’m looking to collaborate on writing fanfic from any of these fandoms
+- 💞️ I’m looking to collaborate on writing fanfic from any of these or other potentially captivating fandoms
 - 📫 How to reach me 
   - [tumblr](https://www.tumblr.com/blog/anathemadevised)
   - [AO3](https://archiveofourown.org/users/ANaTHEMaDEVIsed)
