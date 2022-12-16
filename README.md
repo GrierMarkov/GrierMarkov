@@ -11,7 +11,7 @@
   - [tumblr](https://www.tumblr.com/blog/anathemadevised)
   - [AO3](https://archiveofourown.org/users/ANaTHEMaDEVIsed)
   - [twitter](https://twitter.com/ANaTHEMaDEVIsed)
-  - [discord](discordapp.com/users/755454883414671371)
+  - [discord](https://discordapp.com/users/755454883414671371)
 
 <!---
 GrierMarkov/GrierMarkov is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
